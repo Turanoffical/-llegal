@@ -1,0 +1,2 @@
+# -llegal
+Turanİdeal
